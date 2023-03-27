@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello There!<br>My name is Ali  , I'm English literature student !<br>I love programming and I have been working over 4 year as a freelancer <br><br>
+Hello There!<br>Unknown Programmer ! English literature student <br><br>
 
 
 ## 🌐 Socials:
